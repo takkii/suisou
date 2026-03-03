@@ -22,3 +22,5 @@ _※ 脚光を浴びなかったため、公開します。_
 ```
 
 ※ ラジオネームは伏せます。事実です。
+
+> Copyright © 2026 Team 'Red Eyes, Black Dragon.'
